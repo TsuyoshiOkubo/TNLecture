@@ -8,3 +8,4 @@
 * [中間レポート課題](https://sendfile.s.u-tokyo.ac.jp/public/PqoxAnCJ12KctpROFq5J09p24GhasleotfKnDW4v23cI)
 * 12月15日分: [No.3](https://sendfile.s.u-tokyo.ac.jp/public/MqYxA_uJGrKCXnk3BijkqW-neSdvbiil1c4MAqCiXFIv)
 * [カノニカル形式の補足のノート](https://sendfile.s.u-tokyo.ac.jp/public/cqIwAzIJGuKqytLylGc1wb0oNrmm23LnsOwEx0CCmOh1)
+* 12月18日分：[No.4](https://sendfile.s.u-tokyo.ac.jp/public/FqIzA9WJ3rKRmje9qE2hawrS5xR6N7gAthynKCL7l1Lo)
